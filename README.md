@@ -1,1 +1,1 @@
-# memory-journeyy
+# memory-journey
